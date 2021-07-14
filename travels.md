@@ -1,0 +1,1 @@
+I got to spend my 21st birthday in Las Vegas with my family, as is tradition. We stayed at The Venetian which is one of the most gorgeous hotels I've ever seen, inside or out. We saw The Beatles Love Cirque du Soleil show, an absolute recommend from me, that show is wonderful. I also won 75 dollars playing blackjack. Beginner's luck I suppose XD
