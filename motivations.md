@@ -1,0 +1,1 @@
+I used to be an actor. The instability of work and the frankly toxic community I was a part of made me think about what else I could be doing, and what's really important in life, and software development seemed like the right fit (so far it is). My partner and I want to have a family someday, and I want to ensure they are provided for.
